@@ -1,4 +1,5 @@
 # Introduction
 
 
-![Aarsha_Linkedin_Photo](https://github.com/aarsha-777/Introduction/assets/125038374/92937ade-81de-4dd0-b7c9-a0c8a41d7af6)
+![Aarsha_Linkedin_Photo (1)](https://github.com/aarsha-777/Introduction/assets/125038374/afe9740f-9838-48e0-864f-993f9c6ce890)
+
